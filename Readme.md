@@ -4,4 +4,7 @@ Teste de aprendizado
 
 Ta melhorando, vamo q vamo
 
-bora
+bora tomar cafe
+
+beleza
+
